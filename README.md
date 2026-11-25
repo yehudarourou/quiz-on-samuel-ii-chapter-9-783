@@ -1,0 +1,1 @@
+# quiz-on-samuel-ii-chapter-9-783
